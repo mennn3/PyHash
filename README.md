@@ -1,2 +1,4 @@
-# Python-test1
-#Wedus
+
+# Wedus
+# I'm in control
+# Follow my instagram : @naufaalrmd
